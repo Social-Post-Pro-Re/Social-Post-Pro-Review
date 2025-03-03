@@ -20,31 +20,31 @@ OTOs Don’t Work If You Don’t Have Front End, Can Get Any 1 Or More OTOs From
 
 <p><strong>OTO 1: Mass Persuasion Lifetime Unlimited Access Discount ($9.95)</strong>
 
-Sales page: <a href="https://warriorplus.com/o2/a/gr2y2m5/0/w" target="_blank" rel="nofollow noopener external noreferrer" data-wpel-link="external">https://actionactivated.com/social-post-pro/mass-persuasion/</a>
+<p>Sales page: <a href="https://warriorplus.com/o2/a/gr2y2m5/0/w" target="_blank" rel="nofollow noopener external noreferrer" data-wpel-link="external">https://actionactivated.com/social-post-pro/mass-persuasion/</a>
 
 Use 70+ Persuasion, Manipulation, and Propaganda Techniques + FREE AI To Make More Money…
 
 <p><strong>OTO 2: NLP Pro Write Lifetime Unlimited Access Discount ($9.71)</strong>
 
-Sales page: <a href="https://warriorplus.com/o2/a/gr2y2m5/0/w" target="_blank" rel="nofollow noopener external noreferrer" data-wpel-link="external">https://actionactivated.com/social-post-pro/nlp-pro-writer/</a>
+<p>Sales page: <a href="https://warriorplus.com/o2/a/gr2y2m5/0/w" target="_blank" rel="nofollow noopener external noreferrer" data-wpel-link="external">https://actionactivated.com/social-post-pro/nlp-pro-writer/</a>
 
 Unleash 50+ Neuro-Linguistic Programming Techniques + FREE AI To Make More Money…
 
 <p><strong>OTO 3: AI Radical Keyword Lifetime Unlimited Access Discount ($9.36)</strong>
 
-Sales page: <a href="https://warriorplus.com/o2/a/gr2y2m5/0/w" target="_blank" rel="nofollow noopener external noreferrer" data-wpel-link="external">https://actionactivated.com/social-post-pro/ai-radical-keywords/</a>
+<p>Sales page: <a href="https://warriorplus.com/o2/a/gr2y2m5/0/w" target="_blank" rel="nofollow noopener external noreferrer" data-wpel-link="external">https://actionactivated.com/social-post-pro/ai-radical-keywords/</a>
 
 Get Unlimited High-Value Keywords &amp; Content Ideas in Seconds—With Zero Effort!
 
 <p><strong>OTO 4: Pain Point Triggers (Full Training Discount) ($9.77)</strong>
 
-Sales page: <a href="https://warriorplus.com/o2/a/gr2y2m5/0/w" target="_blank" rel="nofollow noopener external noreferrer" data-wpel-link="external">https://actionactivated.com/social-post-pro/pain-point-triggers/</a>
+<p>Sales page: <a href="https://warriorplus.com/o2/a/gr2y2m5/0/w" target="_blank" rel="nofollow noopener external noreferrer" data-wpel-link="external">https://actionactivated.com/social-post-pro/pain-point-triggers/</a>
 
 Use FREE AI To Uncover Deep Psychological Pain Points In ANY Niche and Make More Money…
 
 <p><strong>OTO 5 Digital Defense Toolkit – Full Training Discount ($8.77)</strong>
 
-Sales page: <a href="https://warriorplus.com/o2/a/gr2y2m5/0/w" target="_blank" rel="nofollow noopener external noreferrer" data-wpel-link="external">https://actionactivated.com/social-post-pro/digital-defense-toolkit/</a>
+<p>Sales page: <a href="https://warriorplus.com/o2/a/gr2y2m5/0/w" target="_blank" rel="nofollow noopener external noreferrer" data-wpel-link="external">https://actionactivated.com/social-post-pro/digital-defense-toolkit/</a>
 
 Prevent your content from being stolen!
 
@@ -294,23 +294,23 @@ Thank you for reading my review. I hope it helps you make the best choice for yo
 
 <p><strong>OTO 1: Mass Persuasion Lifetime Unlimited Access Discount ($9.95)</strong>
 
-Sales page: <a href="https://warriorplus.com/o2/a/gr2y2m5/0/w" target="_blank" rel="nofollow noopener external noreferrer" data-wpel-link="external">https://actionactivated.com/social-post-pro/mass-persuasion/</a>
+<p>Sales page: <a href="https://warriorplus.com/o2/a/gr2y2m5/0/w" target="_blank" rel="nofollow noopener external noreferrer" data-wpel-link="external">https://actionactivated.com/social-post-pro/mass-persuasion/</a>
 
 <p><strong>OTO 2: NLP Pro Write Lifetime Unlimited Access Discount ($9.71)</strong>
 
-Sales page: <a href="https://warriorplus.com/o2/a/gr2y2m5/0/w" target="_blank" rel="nofollow noopener external noreferrer" data-wpel-link="external">https://actionactivated.com/social-post-pro/nlp-pro-writer/</a>
+<p>Sales page: <a href="https://warriorplus.com/o2/a/gr2y2m5/0/w" target="_blank" rel="nofollow noopener external noreferrer" data-wpel-link="external">https://actionactivated.com/social-post-pro/nlp-pro-writer/</a>
 
 <p><strong>OTO 3: AI Radical Keyword Lifetime Unlimited Access Discount ($9.36)</strong>
 
-Sales page: <a href="https://warriorplus.com/o2/a/gr2y2m5/0/w" target="_blank" rel="nofollow noopener external noreferrer" data-wpel-link="external">https://actionactivated.com/social-post-pro/ai-radical-keywords/</a>
+<p>Sales page: <a href="https://warriorplus.com/o2/a/gr2y2m5/0/w" target="_blank" rel="nofollow noopener external noreferrer" data-wpel-link="external">https://actionactivated.com/social-post-pro/ai-radical-keywords/</a>
 
 <p><strong>OTO 4: Pain Point Triggers (Full Training Discount) ($9.77)</strong>
 
-Sales page: <a href="https://warriorplus.com/o2/a/gr2y2m5/0/w" target="_blank" rel="nofollow noopener external noreferrer" data-wpel-link="external">https://actionactivated.com/social-post-pro/pain-point-triggers/</a>
+<p>Sales page: <a href="https://warriorplus.com/o2/a/gr2y2m5/0/w" target="_blank" rel="nofollow noopener external noreferrer" data-wpel-link="external">https://actionactivated.com/social-post-pro/pain-point-triggers/</a>
 
 <p><strong>OTO 5 Digital Defense Toolkit – Full Training Discount ($8.77)</strong>
 
-Sales page: <a href="https://warriorplus.com/o2/a/gr2y2m5/0/w" target="_blank" rel="nofollow noopener external noreferrer" data-wpel-link="external">https://actionactivated.com/social-post-pro/digital-defense-toolkit/</a>
+<p>Sales page: <a href="https://warriorplus.com/o2/a/gr2y2m5/0/w" target="_blank" rel="nofollow noopener external noreferrer" data-wpel-link="external">https://actionactivated.com/social-post-pro/digital-defense-toolkit/</a>
 
 <span style="font-family: helvetica, arial, sans-serif;"><strong>Step 2:</strong> After you complete the order, send [the receipt ID] in a message to my email at <span style="color: #ff0000;"><strong>support@williamreview.com</strong></span>. You Will Get ALL my Bonuses and REMEMBER to hit me through email to confirm that you had done step 2. You will get my Bonuses within 12 hours.</span>
 
